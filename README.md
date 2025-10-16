@@ -21,3 +21,4 @@ Este perfil demonstra essa caminhada, onde compartilho um pouco do que tenho apr
 ---
 
 ✨ Sinta-se à vontade para navegar 🔍, dar a sua opinião 💬 ou trocar uma ideia comigo! 😃
+te amo professor!!!!!!!!!!
