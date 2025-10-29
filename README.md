@@ -17,6 +17,7 @@ Este perfil demonstra essa caminhada, onde compartilho um pouco do que tenho apr
 - 📄 [Veja meu Currículo](https://drive.google.com/file/d/1rhZ_YiHQGn2SanehoidLjbAM0nCbPCBe/view?usp=sharing)
 - 📧 Email: mhlg07@gmail.com
 - [LinkedIn](https://www.linkedin.com/in/miguel-hecht-192495388/)
+- [Google Sites](https://sites.google.com/view/portfoliomiguelhechtceub/p%C3%A1gina-inicial)
 
 ---
 
